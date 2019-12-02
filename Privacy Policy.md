@@ -5,7 +5,7 @@ We think informing you about how we will use your private information is essenti
 
 This Privacy Policy refers to all private information that we collect and use when you establish an Erun account, when you visit or use Erun's(' Services') websites, apps, internet shops, online, mobile, instore or other services, when you buy our products in our stores, participate in Erun activities or competitions/races, or communicate with us via social media or otherwise. 'Personal data' implies any information by which we can indentify you with.
 
-Erun is a software company located in Islamabad Pakistan. You can contact us on **muddassir.ahmed235@gmail.com**. Erun, House 106, G-10/1, Islamabad **+923349240864**, is responsible for using  your personal data. The Erun Software Company will be referred to hereafter as Erun or ‘we’.
+Erun is a software company located in Islamabad Pakistan. You can contact us on **muddassir.ahmed235@gmail.com**. Erun, is responsible for using  your personal data. The Erun Software Company will be referred to hereafter as Erun or ‘we’.
 
 ### Data We Collect:
 
